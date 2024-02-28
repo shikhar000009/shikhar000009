@@ -2,7 +2,7 @@
 - 👀 I’m interested in web development & AI development
 - 🌱 I’m currently learning web development
 - 💞️ I’m looking to collaborate on any type of project which will increase my thinking power..
-- 📫 How to reach me @shikhar4404@gmail.com ..
+- 📫 How to reach me shikhar4404@gmail.com ..
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
